@@ -1,8 +1,10 @@
 # Chapter 9: Turns Out, Road Trips Are Just Group Therapy
 
-I have never driven a car in my life. Turns out, when you steal the car of the god of travelers, it doesn't really matter.
+I have never driven a car in my life. Turns out, when you're running from the god of travelers, nobody asks you for a licence.
 
-The car practically drove itself. I barely had to touch the wheel, and it just knew where to go, gliding past trucks and buses like they were standing still. Outside the windows, the world blurred into streaks of yellow and green. Nobody said anything for a long time. I think we were all waiting for Narad to appear in the back seat and throw us into another one of his prisons.
+The first hour was the scariest hour of my life, and I had literally fought a buffalo demon the week before. I braked so hard that Aryan hit his head on the dashboard. I confused the wipers with the indicators more times than I will ever admit. Trucks honked at us like they wanted us dead, and Ria and Aryan screamed at me in two different languages. But by the time the sun started going down, I had kind of gotten the hang of it—mostly because the highway was straight and empty, and Narad's car was smooth and fast in a way that made my step-dad's car feel like a bullock cart.
+
+Outside the windows, the world blurred into streaks of yellow and green. Nobody said anything for a long time. I think we were all waiting for Narad to appear in the back seat and throw us into another one of his prisons.
 
 He didn't.
 
@@ -60,7 +62,7 @@ We stayed there till the chai went cold and Aryan had eaten everything on the ta
 
 …
 
-We drove through the night. Ria fell asleep in the back seat somewhere past midnight, curled up with her bag as a pillow. Aryan took the passenger seat and stayed awake with me, because Bhutas barely sleep, and because, I think, he didn't trust the car not to eat us.
+We drove through the night. Ria fell asleep in the back seat somewhere past midnight, curled up with her bag as a pillow. Aryan took the passenger seat and stayed awake with me, because Bhutas barely sleep, and because, I think, he didn't trust me not to drive us off a bridge.
 
 "You've been quiet," he said, after a long stretch of just engine hum. "Quieter than usual."
 
@@ -78,15 +80,11 @@ I snorted. "You're ridiculous."
 
 I wanted to believe him so badly.
 
-In my bag, between my feet, the winged shoes Sujan had given me shifted. Just once. A tiny hum, like something turning over in its sleep. I told myself it was just the road. The car was a god's car, after all. Everything in it was probably a little alive.
-
-But I moved my bag further from my feet anyway.
-
 …
 
-By the time the sky started turning grey, we were crossing into Uttar Pradesh. The car slowed down on its own, like it knew its job was done, and rolled to a stop on the side of an empty road.
+By the time the sky started turning grey, we were crossing into Uttar Pradesh. My arms ached from holding the wheel all night. When I finally pulled over on the side of an empty road and turned the engine off, my hands were actually shaking. I had driven a car through the night and we had survived, which, honestly, might be my biggest achievement on this quest so far.
 
-Ria woke up, stretched, and looked at the horizon.
+The sudden quiet woke Ria up. She stretched, looked at the horizon.
 
 "We walk from here," she said. "The entrance to Patal has to be close."
 

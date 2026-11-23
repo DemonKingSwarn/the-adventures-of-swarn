@@ -76,9 +76,9 @@ And there was a hearth at the center.
 
 "Okay, and then who is my father?" I asked.
 
-"You haven't been chosen yet," he replied.
+"You haven't been claimed yet," he replied.
 
-"Okay, so when am I getting chosen?" I asked.
+"Okay, so when am I getting claimed?" I asked.
 
 He hesitated and said, "Gods have their own way of choosing their offspring. Could be a week, or a month, or…"
 
