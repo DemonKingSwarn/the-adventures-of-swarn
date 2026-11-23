@@ -1,7 +1,5 @@
 # Chapter 10: We Took a Shortcut Through Hell. Literally.
 
-We left the car at Uttar Pradesh—damn, that thing is fast. I guess the god of travelers would have a fast car. We were inside Narad's Abode for a literal two days, and it felt like minutes to us.
-
 Ria left a note on the car's windshield with the keys. The note said, "You can have it back now."
 
 Now we needed to find the entrance to Patal more than ever.
