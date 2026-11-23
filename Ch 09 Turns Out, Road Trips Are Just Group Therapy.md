@@ -26,7 +26,7 @@ Around evening, Aryan's stomach growled so loudly that I heard it over the engin
 
 If you have never eaten at a highway dhaba at night, I don't know how to explain it to you. Plastic chairs, a TV playing some old movie nobody was watching, trucks rumbling past every few minutes, and the best food you will ever eat in your life. Aryan ordered enough for five people. Ria got chai. And for the first time since we left camp, the three of us just sat there, with no monsters, no gods, no illusions. Just three kids at a plastic table.
 
-That's when it hit me. Out of nowhere. One minute I was tearing into a roti, and the next I couldn't breathe properly, because the last time I had eaten somewhere that wasn't camp, it was at the cabin, and my mom was stealing bites of her own cooking and booping my nose.
+That's when it hit me. Out of nowhere. One minute I was tearing into a roti, and the next I couldn't breathe properly, because the last time I had eaten somewhere that wasn't camp, it was at the cabin, and I was stealing bites of her cooking and she was booping my nose.
 
 I put the roti down.
 
@@ -88,10 +88,4 @@ The sudden quiet woke Ria up. She stretched, looked at the horizon.
 
 "We walk from here," she said. "The entrance to Patal has to be close."
 
-I got out and looked back at the car. Somewhere behind us was camp, and Sujan, and the Shiva cabin, and the peepal tree. Somewhere ahead of us was the land of the dead, and, if Yama's Yamaduttas had told the truth, my mom.
-
-"Hey," Aryan said, softly, reading my face like he always could. "We're getting her back."
-
-"Yeah," I said. "We are."
-
-And for the first time since the museum, I actually believed it.
+I got out and looked back at the car. Somewhere behind us was camp, and Sujan, and the Shiva cabin, and the peepal tree. Somewhere ahead of us was the land of the dead.
