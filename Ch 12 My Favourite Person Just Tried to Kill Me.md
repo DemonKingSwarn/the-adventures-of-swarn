@@ -1,4 +1,4 @@
-# Chapter 10: My Favourite Person Just Tried to Kill Me
+# Chapter 12: My Favourite Person Just Tried to Kill Me
 
 Later that night, when everyone was celebrating. Sujan took me for a little walk to where we always trained.
 

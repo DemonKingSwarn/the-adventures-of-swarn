@@ -1,155 +1,173 @@
 # Chapter 3: Welcome to Camp, I Guess
 
-While my eyes were closed, I felt someone feeding me something. It tasted like one of those cakes my mom makes, and the drink tasted like my favourite masala chai. And then I felt an unusual heat coming from my body and all the strain and pain were gone. 
+While my eyes were closed, I felt someone feeding me something. It tasted like one of those cakes my mom makes, and the drink tasted like my favourite masala chai. For half a second, I thought I was home. Then I remembered, and the cake didn't taste like anything anymore. And then I felt an unusual heat coming from my body, and all the strain and pain were gone.
 
-My eyes open slowly and I saw a white girl with black hair and princess curls, with beautiful blue eyes. 
+My eyes opened slowly, and I saw a white girl with black hair and princess curls, with beautiful blue eyes.
 
-“You drool when you sleep.” She said.
+"You drool when you sleep," she said.
 
-“Huh? uhm what is that you were feeding me? And where are we?” I asked. 
+"Huh? Uhm, what is that you were feeding me? And where are we?" I asked.
 
-“It’s Amrit and Somras, the food of the gods. They taste like your favourite food, and to us demigods they have a healing effect. We are in the infirmary at camp..” She said, calmly. 
+"It's Amrit and Somras, the food of the gods. They taste like your favourite food, and to us demigods they have a healing effect. We are in the infirmary at camp," she said, calmly.
 
-“Who are you?” I asked, falling back out of consiousness.
+"Who are you?" I asked, falling back out of consciousness.
 
-I woke back up again, but this time she wasn't there.
+I woke up again, but this time she wasn't there.
 
-I stood up from the bed and started looking around in this room and my gaze dropped on the horn from last night’s buffalo man thingy. It started spinning my guts, I saw my mom turn to whatever it was and now I am here alone. 
+I stood up from the bed and started looking around the room, and my gaze dropped on the horn from last night's buffalo-man thingy. It made my guts churn. I had seen my mom turn into whatever that was, and now I was here alone.
 
-I walk out of the infirmary, and notice two figures playing some sort of game. With that same girl who was feeding me standing at the side of the man. 
+I couldn't stop staring at it. Every time I blinked, I saw the dust again—golden dust settling on green grass. I wondered if anyone had even gone back for her, or if she was still just lying there on the side of the road. I had to hold onto the bed frame to keep my hands from shaking.
 
-I approached them and saw who the man was, it was Mr Sharma, but he looked different. 
+I walked out of the infirmary and noticed two figures playing some sort of game, with that same girl who was feeding me standing at the man's side.
 
-“Mr Sharma, what are you?” I asked kindly and was also surprised while looking at his lower half which looked like a bird's. 
+I approached them and saw who the man was. It was Mr Sharma, but he looked different.
 
-“Oh you are awake. It looks like Ria was able to bring you back to full health. Swarn, I am a Kinnara, and my name is Vajivega.” He said. 
+"Mr Sharma, what are you?" I asked kindly, still surprised while looking at his lower half, which looked like a bird's.
 
-I suddenly glance at the woman who was playing the game with him, and notices her drinking way too much for anyone’s good. She was wearing a black sundress.
+"Oh, you are awake. It looks like Ria was able to bring you back to full health. Swarn, I am a Kinnara, and my name is Vajivega," he said.
 
-“Oh, she is Varuni, the goddess of wine. She is the camp director.” Mr Sharma, I mean Vajivega said. 
+I suddenly glanced at the woman who was playing the game with him and noticed her drinking way too much for anyone's good. She was wearing a black sundress.
 
-“What is a goddess of wine doing in a camp full of kids?” I asked, intrigued. 
+"Oh, she is Varuni, the goddess of wine. She is the camp director," Mr Sharma—I mean Vajivega—said.
 
-“Well she never liked living amongst other gods in the Swarg, so she came to the only other place where she can be her godself apart from Swarg and their politics. And also the fact that she adores children.” Vajivega says. 
+"What is a goddess of wine doing in a camp full of kids?" I asked, intrigued.
 
-I turned to Varuni and tried to be respectful by bowing, which she immediately stopped me from doing. “There is no need for that.” She said. 
+"Well, she never liked living amongst the other gods in Swarg, so she came to the only other place where she can be her godself, apart from Swarg and their politics. And also the fact that she adores children," Vajivega said.
 
-After that, Vajivega took me for a little walk away from them so he could speak with me. 
+I turned to Varuni and tried to be respectful by bowing, which she immediately stopped me from doing. "There is no need for that," she said.
 
-“So what is the problem with Ria?” I asked.
+After that, Vajivega took me for a little walk away from them so he could speak with me.
 
-“Well she is a little guarded, she will open up in her own time.” He replied. 
+"So what is the problem with Ria?" I asked.
 
-“What happened to my mom?” I asked. 
+"Well, she is a little guarded. She will open up in her own time," he replied.
 
-He hesitated for a moment and said “Well none of us ever saw a human turn to dust like that before, so we are still figuring it out. But that only happens when someone collects them.”
+"What happened to my mom?" I asked.
 
-It again turned my guts. 
+He hesitated for a moment and said, "Well, none of us have ever seen a human turn to dust like that before, so we are still figuring it out. But that only happens when someone collects them."
 
-“I lost your pen-trident thing.” I said. 
+It turned my guts again.
 
-He smiled and said “Check your pockets.” 
+"Collected." Like she was a thing someone had misplaced. I wanted to ask who would collect my mom, and why. But Vajivega's face had gone careful and quiet, and something told me he didn't have the answer either.
 
-“No, I mean, I lost it during that fight.” I said. 
+"I lost your pen-trident thing," I said.
 
-“Check your pocket.” He replied again. 
+He smiled and said, "Check your pockets."
 
-And I checked my pocket and there it was and asked him “But how?”
+"No, I mean, I lost it during that fight," I said.
 
-“That pen is enchanted, if you ever lose it then it will always return to your pockets in its pen form.” He said. 
+"Check your pocket," he replied again.
 
-"Your pen, my wheelchair, are all part of your father's world now." He said again.
+I checked my pocket, and there it was. "But how?" I asked him.
 
-"My father, whom I dont even know who he is." I mumbled quitely so he can't hear it.
+"That pen is enchanted. If you ever lose it, it will always return to your pocket in its pen form," he said.
 
-“Where are you taking me?” I asked. 
+"Your pen, my wheelchair—they are all part of your father's world now," he said again.
 
-He smiled and pointed at the front and said “Welcome to camp, each cabin here belongs to a specific god where demigod children of that god stay.”
+"My father, whom I don't even know," I mumbled quietly so he couldn't hear it.
 
-I looked around, there were twelve cabins, each labelled clearly. They were forming a U-shape. There was Kartikeya cabin, Vishwakarma cabin, Indra cabin, Narad cabin, Saraswati cabin, Rati cabin, Surya Cabin, Chandra cabin, Vishnu cabin, Brahma Cabin, and then right at the end of the U-shape, it was Shiva cabin, and Parvati cabin right next to it.
+"Where are you taking me?" I asked.
+
+He smiled, pointed ahead, and said, "Welcome to camp. Each cabin here belongs to a specific god, and the demigod children of that god stay there."
+
+I looked around. There were twelve cabins, each labelled clearly, forming a U-shape. There was the Kartikeya cabin, the Vishwakarma cabin, the Indra cabin, the Narad cabin, the Saraswati cabin, the Rati cabin, the Surya cabin, the Chandra cabin, the Vishnu cabin, the Brahma cabin, and then, right at the end of the U-shape, the Shiva cabin, with the Parvati cabin right next to it.
 
 And there was a hearth at the center.
 
-“Okay, and then who is my father then?” I asked.
+"Okay, and then who is my father?" I asked.
 
-“You haven’t been chosen yet.” He replied. 
+"You haven't been chosen yet," he replied.
 
-“Okay so when am I getting chosen?” I asked. 
+"Okay, so when am I getting chosen?" I asked.
 
-He hesitated and said “gods have their own way of choosing their offsprings, could be from a week, or a month or…..”
+He hesitated and said, "Gods have their own way of choosing their offspring. Could be a week, or a month, or…"
 
-“or never” I interrupted. “I get it, he doesn’t want to do anything with me. So what am I doing here? I don’t have a place.” 
+"Or never," I interrupted. "I get it, he doesn't want anything to do with me. So what am I doing here? I don't have a place."
 
-“Of course you have a place.” He said and then pointed at the Narad cabin.
+"Of course you have a place," he said, and pointed at the Narad cabin.
 
-“Narad’s cabin is both home to his own children and the unclaimed demigods.” He said. 
-
-…
-
-We went inside Narad’s cabin and then Vajivega did what I hoped he wouldn’t do. He introduced me. The cabin was overcrowded and filled with all sorts of stuffs and it was one of the only cabins at camp which was kind of had cracks.
-
-“Everyone” He says while clapping to gather their attention to him and me. “This is Swarn, and he will stay with you all.”
-
-They looked at me and then went back to doing whatever they were doing. 
-
-I went to the corner of the cabin where my stuff was already present. I kneeled down to unpack my stuff and found some of the food items my mom had packed for me, which made me feel guilt yet again. That’s when a tall demigod with curly black hair approached me. He looked really handsome and muscular. He had this big scar on his left eye which kind of looked like someone scratched him there. 
-
-I stood up to shake his hand. 
-
-“I am Sujan” He said. 
-
-“Oh… I am Swarn” I replied. 
-
-“So you are the one who just arrived to camp?” Sujan asked.
-
-“Yeah, and I am unclaimed right now. Are you also uhm…” As I was saying l, Sujan interrupted me and said “Unclaimed? No, Narad is my father.”
-
-“But don’t worry, we at the Narad cabin look out for each other.” Sujan added.
+"Narad's cabin is home to both his own children and the unclaimed demigods," he said.
 
 …
 
-Over the week I have been staying around Sujan and Ria a lot. 
+We went inside Narad's cabin, and then Vajivega did what I hoped he wouldn't do. He introduced me. The cabin was overcrowded and filled with all sorts of stuff, and it was one of the only cabins at camp that kind of had cracks.
 
-Ria has been teaching me Sanskrit and other Hindu Mythology stuffs, Oh by the way Ria told me that she is a daughter of Saraswati, which kind of makes sense why she is so smart with everything. And she is also the head of the Saraswati cabin.
+"Everyone," he said, clapping to gather their attention. "This is Swarn, and he will stay with you all."
 
-She explained me that for us demigods, ADHD and Dyslexia are kind of like gifts. ADHD helps us in battles, and Dyslexia is because our brains are hardwired to ancient Sanskrit.
+They looked at me and then went back to doing whatever they were doing.
 
-Sujan has started teaching me how to fight using weapons. I am awful with swords and bows, but with a trident or spear, I am really good. Sujan and I started to be a lot like brothers now. 
+I went to the corner of the cabin where my stuff already was. I kneeled down to unpack and found some of the food items my mom had packed for me, which made me feel the guilt yet again.
 
-After my time with Sujan and Ria, I do end up spending more time with Aryan.
+She had packed it during the last normal hour of my life, and neither of us had known that. I sat on the floor holding one of the containers for a long time. I didn't open it. I knew if I opened it and it still smelled like her cooking, I was going to lose it in front of a cabin full of strangers.
 
-I also learned from Sujan one night when him, Ria, and me were sitting infront of the Annapurna's hearth that he and Ria came to camp together, when Ria was just 7 years old. With another child, a demigod daughter of Vishnu, her name was Astrid, her mother gave her this name who was Norwegian. They were being chased by monsters when they were coming to camp. When they reached the hill she stayed behind to help Sujan and Ria get some time till they are inside camp. When she was dying, her father, Vishnu turned her into a Peepal tree to save her life. Now the Peepal tree creates a magical boundary around the camp which protects it from the monsters. 
+That's when a tall demigod with curly black hair approached me. He looked really handsome and muscular. He had this big scar on his left eye, which kind of looked like someone had scratched him there.
 
-Ria immediately left us when Sujan started talking about the time.  
+I stood up to shake his hand.
 
-I approach the peepal tree alone.
+"I am Sujan," he said.
 
-I sit under the tree, now I know that it was once a person. Even though I know she can’t hear me now, I asked her “Did you feel alone too? I wonder what kind of person you were. If you were here, we could have been friends I think.”
+"Oh… I am Swarn," I replied.
 
-As the time passed, Ria came to call me for dinner in the dining pavilion. We entered the dining pavilion and I joined the Narad cabin.
+"So you are the one who just arrived at camp?" Sujan asked.
 
-In dining pavilion, you are only allowed to sit with your cabin mates. Different cabins are not allowed to sit together.
+"Yeah, and I am unclaimed right now. Are you also, uhm—" As I was saying it, Sujan interrupted me. "Unclaimed? No, Narad is my father."
 
-Today it was Narad cabin’s turn to offer some of the food to the gods. Sujan told me that we burn few pieces from our plates into the fire to offer them to the gods. 
+"But don't worry, we at the Narad cabin look out for each other," Sujan added.
 
-So we stood up and went towards the fire. I put a little of my food in the fire and closed my eyes “To my dad, whoever you are. I hope I can see you.”
+…
 
-...
+Over the week, I stayed around Sujan and Ria a lot.
 
-That night in the Narad cabin, I couldn’t sleep. So I went out for a walk, and I saw Ria reading by the hearth. So I approached her. 
+Ria had been teaching me Sanskrit and other Hindu Mythology stuff. Oh, by the way, Ria told me she is a daughter of Saraswati, which kind of explains why she is so smart with everything. She is also the head of the Saraswati cabin.
 
-“Hey, you couldn’t sleep as well?” I asked. 
+She explained to me that for us demigods, ADHD and dyslexia are kind of like gifts. ADHD helps us in battles, and dyslexia is because our brains are hardwired to ancient Sanskrit.
 
-“No. Recently there is much on my mind, about you actually.” She replied honestly. 
+Sujan started teaching me how to fight using weapons. I am awful with swords and bows, but with a trident or spear, I am really good. Sujan and I started to become a lot like brothers.
 
-“What about me?” I asked her. 
+For the first time since the museum, things started to feel almost okay. Almost. The nightmares still came most nights—dust, wings, my mom waving my jacket—but camp had a way of keeping you too tired to think.
 
-“Like how you were able to defeat Mahisasura with just your bare hands and took out his horn? He was supposed to be so powerful that Durga had to come herself..” She said. 
+After my time with Sujan and Ria, I ended up spending more time with Aryan too.
 
-“I don’t know, but seeing him turn my mother to dust fuelled me with anger and also possibly adrenaline.” I said, “But there is one thing, I am really good with a spear or a trident, but as soon as you give me a sword or any other weapon, I suck so bad at it. Do you know its reason?” I added, softly. 
+I also learned from Sujan one night, when he, Ria, and I were sitting in front of Annapurna's hearth, that he and Ria had come to camp together when Ria was just seven years old. With another child, a demigod daughter of Vishnu. Her name was Astrid—her mother, who was Norwegian, gave her that name. They were being chased by monsters on their way to camp. When they reached the hill, she stayed behind to buy Sujan and Ria some time to get inside camp. When she was dying, her father, Vishnu, turned her into a peepal tree to save her life. Now the peepal tree creates a magical boundary around the camp that protects it from monsters.
 
-“Being good at a weapon is almost always tied to our godly parents, so whoever your godly parent is, they are really good with a spear and a trident.” She replied. 
+Ria immediately left us when Sujan started talking about that time.
 
-We talked the entirety of the night and then the next morning when I woke up, I found her sleeping on my shoulders. Which kind of made me blush, but I didn’t move so she wouldn’t wake up. 
+Sujan didn't go after her. He just watched her walk away, and something in his face told me he had watched her walk away from this exact conversation many times before.
 
-When she also woke up eventually, she blushed as well. But we didn’t say anything about it.
+I approached the peepal tree alone.
+
+I sat under the tree, now that I knew it was once a person. Even though I knew she couldn't hear me now, I asked her, "Did you feel alone too? I wonder what kind of person you were. If you were here, we could have been friends, I think."
+
+The leaves moved a little, though there was no wind. I decided to take that as a yes.
+
+Later, Ria came to call me for dinner in the dining pavilion. We entered the dining pavilion, and I joined the Narad cabin.
+
+In the dining pavilion, you are only allowed to sit with your cabin mates. Different cabins are not allowed to sit together.
+
+Today it was Narad cabin's turn to offer some of the food to the gods. Sujan told me that we burn a few pieces from our plates in the fire to offer them to the gods.
+
+So we stood up and went towards the fire. I put a little of my food in the fire and closed my eyes. "To my dad, whoever you are. I hope I can see you."
+
+And then, quieter, only in my head, I added one more. To Mom. I hope you can see me.
+
+…
+
+That night in the Narad cabin, I couldn't sleep, so I went out for a walk and saw Ria reading by the hearth. I approached her.
+
+"Hey, you couldn't sleep either?" I asked.
+
+"No. Recently there is much on my mind—about you, actually," she replied honestly.
+
+"What about me?" I asked her.
+
+"Like, how were you able to defeat Mahishasura with just your bare hands and take out his horn? He was supposed to be so powerful that Durga had to come herself," she said.
+
+"I don't know, but seeing him turn my mother to dust fuelled me with anger—and possibly adrenaline," I said. "But there is one thing. I am really good with a spear or a trident, but as soon as you give me a sword or any other weapon, I suck so bad at it. Do you know the reason?" I added, softly.
+
+"Being good at a weapon is almost always tied to our godly parents. So whoever your godly parent is, they are really good with a spear and a trident," she replied.
+
+We talked the entirety of the night, and the next morning when I woke up, I found her sleeping on my shoulder. Which kind of made me blush, but I didn't move, so she wouldn't wake up.
+
+When she eventually woke up too, she blushed as well. But we didn't say anything about it.
+
+We didn't say anything about it at breakfast either, though Sujan kept looking between the two of us with this annoying little smile.

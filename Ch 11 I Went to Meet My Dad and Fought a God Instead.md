@@ -1,4 +1,4 @@
-# Chapter 9: I Went to Meet My Dad and Fought a God Instead
+# Chapter 11: I Went to Meet My Dad and Fought a God Instead
 
 “What just happened?” Ria asked, looking a bit stunned.
 
