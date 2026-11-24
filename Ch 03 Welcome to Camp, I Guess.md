@@ -20,7 +20,7 @@ I couldn't stop staring at it. Every time I blinked, I saw the dust again—gold
 
 I walked out of the infirmary and noticed two figures playing some sort of game, with that same girl who was feeding me standing at the man's side.
 
-I approached them and saw who the man was. It was Mr Sharma, but he looked different.
+I approached them and saw who the man was. It was Mr Sharma, but he looked different, he wasn’t sitting on his usual wheelchair, just an ordinary wooden chair.
 
 "Mr Sharma, what are you?" I asked kindly, still surprised while looking at his lower half, which looked like a bird's.
 
