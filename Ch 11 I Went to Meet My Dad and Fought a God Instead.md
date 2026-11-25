@@ -80,7 +80,7 @@ Where Kartikeya was, now remains the armour. I went to check it and held it, tha
 
 It took me a second to understand what I was holding. Yama's stolen armour. The thing he had sent us to find. After everything—the fight, the light, Kartikeya disappearing—that part of the quest had ended up right there in my hands.
 
-"I will take it from here." She said as she took the armour from mmy hands and flew off.
+"I will take it from here." She said as she took the armour from my hands and flew off.
 
 I watched her until she was gone. I could only hope that getting the armour back meant Yama would keep his word about my mom.
 
@@ -129,6 +129,8 @@ And then the winged shoes started taking me right towards the pit, so I quickly 
 I stayed crouched on the ground for a moment, waiting for my heart to slow down. A few more seconds and I would have gone in with them. I looked at the pit, then at the empty place on my feet where Sujan's gift had been. I didn't want to think about what that meant yet.
 
 And then I remembered that one line of the prophecy, “The god who has turned.” It was Kartikeya who was doing this.
+
+This pit was never meant to be here, and somehow its here.
 
 I looked around and then see the same two people I saw at the bus stand way back. They smiled at me and the woman spoke "You are brave, young one."
 

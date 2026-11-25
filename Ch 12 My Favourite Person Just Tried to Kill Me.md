@@ -8,7 +8,7 @@ I went without thinking twice. This was Sujan. This was the place where he had t
 
 “Yeah, it was more of an instinct.” I replied. “I did rely a lot on your training.”
 
-“There’s one more thing, uhm I lost the shoes you gave me when I was at Dandakaranya. They acted  like they had the minds of their own and started dragging me towards the lake.” I said slowly, hesitantly.
+“There’s one more thing, uhm I lost the shoes you gave me when I was at Dandakaranya. They acted  like they had the minds of their own and started dragging me towards the pit.” I said slowly, hesitantly.
 
 Though Sujan didn’t look surprised at all, he looked like he was expecting that to happen.
 
@@ -34,11 +34,11 @@ My mouth had gone dry. I didn't want to say the last line. Saying it out loud fe
 
 “And you shall be betrayed by the one you trust the most.” I said.
 
-“It was you!” I said with sadness in my voice as I finally pieced together everything.
+“It was you! You stole Yama's armour for Kartikeya, because gods aren't allowed to steal from each other. And it was you who wanted to take me to that pit, wasn't you? You wanted to start a war between the gods.” I said with sadness in my voice as I finally pieced together everything.
 
 For a second, all I could see were the stupid little moments. Sujan re-packing my bag. Sujan grinning when I got claimed. His hand on my shoulder when he told me to come back in one piece. The brother I thought I had found was standing in front of me, and he had known exactly where those shoes were supposed to take me.
 
-“I wasn’t expecting you to get out of those shoes.” Sujan said. “You could have joined my cause.”
+“I wasn’t expecting you to get out of those shoes.” Sujan said. “It's not about the war between the gods, it's about a cause.”
 
 “Your cause? What are you talking about?” I said.
 
